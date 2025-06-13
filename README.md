@@ -1,2 +1,2 @@
-Khwlqab@gmail.com # -
+Khwlqab@gmail.com 
 الجذور
